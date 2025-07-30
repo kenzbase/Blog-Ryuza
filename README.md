@@ -1,5 +1,5 @@
 # Blog By Ryuza
-yey free assets made by Type://Denpasar and Emergency :)
+yey free assets made by Type://Denpasar and Emergent :)
 zzz
 btw this is a 65% of progress 
 so this script didnt work well
